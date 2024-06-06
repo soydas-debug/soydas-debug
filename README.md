@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @soydasyurtman
+- 👀 I am interested and want to learn
+- 💞️ We can collaborate on: Personal website
+- 📫 You can reach me via e-mail; soydasyurtman@hotmail.com
